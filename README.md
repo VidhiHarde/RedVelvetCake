@@ -1,1 +1,6 @@
 # RedVelvetCake
+Hello everyone today I am going to make Red Velvet Cake.....
+Red Velvet Cake is traditionally a red, red-brown, crimson or scarlet-colored chocolate layer cake, layered with ermine icing..
+It is made with cocoa powder , flour , vinegar , butter and buttermilk. It is fully loaded with creamy and sugery goodness..
+Its flavour is little chocolaty and the main flavour actually comes from the cream cheese frosting...
+So lets get started with the recipe.......:)
